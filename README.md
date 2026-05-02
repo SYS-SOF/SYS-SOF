@@ -5,6 +5,9 @@
 
 Here are some ideas to get you started:
 
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/e16f51e78b31f3332895460b917977f87279bd6a/03da49fead08f0ca81eaf63e6cde43db.jpg)
+
+
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
