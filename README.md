@@ -1,11 +1,10 @@
-![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/352870r1wbtx0gci.webp?raw=true)
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/61fb75a6ede7c2691bdec56eb2b1d8ec.jpg?raw=true)
                                                                                 
 . . . .
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
-
-
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/352870r1wbtx0gci.webp?raw=true)!
 call me sof/car.
 
 greek bitch
