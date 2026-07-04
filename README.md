@@ -8,7 +8,7 @@
 
 call me sof/car.
 
-greek lady.
+greek bitch
 
 
 .
