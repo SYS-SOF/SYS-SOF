@@ -1,5 +1,54 @@
 
 
+. . . . δεν ειναι απλα αγαπη. . . . .
+
+─ ཐི ⋅ ♰ ⋅ ཋྀ ─
+
+
+
+call me sof/car.
+
+greek lady.
+
+
+.
+
+𓆩♱𓆪
+
+
+
+
+─ ཐི ⋅ ♰ ⋅ ཋྀ ─
+
+╭︵‿୨ ...
+
+
+she/they
+or any!
+
+
+
+ ୧‿︵╮
+
+─ ཐི ⋅ ♰ ⋅ ཋྀ ─
+
+
+.
+
+𓆩♱𓆪
+
+dni proshippers, dw fans/ qwel supporters, hh/hb fans.
+
+
+
+─ ཐི ⋅ ♰ ⋅ ཋྀ ─
+
+. . . . ╰──╮  ╭──╯ . . . .
+
+"  "
+
+
+
 <!--
 **SYS-SOF/SYS-SOF** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
