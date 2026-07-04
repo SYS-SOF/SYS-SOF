@@ -41,7 +41,7 @@ or any!
 
 𓆩♱𓆪
 
-dni proshippers, dw fans/ qwel supporters.
+'there was nothing that could do to stop her from cutting, her beautiful blue hair off...'
 
 
 
@@ -51,7 +51,7 @@ dni proshippers, dw fans/ qwel supporters.
 
 "  "
 
-
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/96c19ba8b6ff50145110a27d92cc0db2.jpg?raw=true)
 
 <!--
 **SYS-SOF/SYS-SOF** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
