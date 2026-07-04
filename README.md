@@ -37,7 +37,7 @@ or any!
 
 𓆩♱𓆪
 
-dni proshippers, dw fans/ qwel supporters, hh/hb fans.
+dni proshippers, dw fans/ qwel supporters.
 
 
 
