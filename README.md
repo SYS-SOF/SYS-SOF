@@ -1,5 +1,5 @@
 
-![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/fe386777e8e34786b14c85ddd8251431540dd23e/33644bxhnjgbaps.webp)                                                                                 
+                                                                                
 . . . .
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
@@ -16,7 +16,7 @@ greek bitch
 𓆩♱𓆪
 
 
-
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/fe386777e8e34786b14c85ddd8251431540dd23e/33644bxhnjgbaps.webp)
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
