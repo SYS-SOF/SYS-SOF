@@ -36,7 +36,7 @@ or any!
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
-
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/552197r3yuj5pzvy.gif?raw=true)
 .
 
 𓆩♱𓆪
