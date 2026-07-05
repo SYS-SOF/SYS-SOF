@@ -6,7 +6,7 @@
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
-![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/352870r1wbtx0gci.webp?raw=true)
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/352870r1wbtx0gci.webp?raw=true)                          ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/1051456b6us6anuoa.webp?raw=true)
 
 
 
