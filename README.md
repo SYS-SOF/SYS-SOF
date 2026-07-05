@@ -2,8 +2,7 @@
                                                                                 
 . . . .
 
-![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true)![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true)
-
+![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true) ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/645906hmoluktu9a.webp?raw=true)
 
 ─ ཐི ⋅ ♰ ⋅ ཋྀ ─
 
