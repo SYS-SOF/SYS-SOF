@@ -29,7 +29,7 @@ greek person
 ╭︵‿୨ ...
 
 
-they/them
+they/she
 or any! (they prefered!!)
 
 
