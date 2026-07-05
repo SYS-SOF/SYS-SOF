@@ -58,7 +58,7 @@ or any! (they prefered!!)
 
 ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/96c19ba8b6ff50145110a27d92cc0db2.jpg?raw=true)
 
-image altimage altimage altimage altimage altimage alt
+
  ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/1051456b6us6anuoa.webp?raw=true)
 
 <!--
