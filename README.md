@@ -12,7 +12,7 @@
 
 call me sof/car.
 
-greek bitch
+greek person
 
 
 .
@@ -27,8 +27,8 @@ greek bitch
 ╭︵‿୨ ...
 
 
-she/they
-or any!
+they/them
+or any! (they prefered!!)
 
 
 
