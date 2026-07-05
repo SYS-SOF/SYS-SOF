@@ -49,7 +49,7 @@ or any!
 
 . . . . ╰──╮  ╭──╯ . . . .
 
-"  "
+
 ![image alt](https://github.com/SYS-SOF/SYS-SOF/blob/main/731620v13wxsagg9.webp?raw=true)
 
 
